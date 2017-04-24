@@ -1,1 +1,0 @@
-# ajpulido1.github.io
